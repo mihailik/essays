@@ -15,4 +15,4 @@ Having famous actor play in the next movie sells. Having famous actor play the s
 
 Love. Nobody knows how exactly it happens, but once in a whil you meet a person, a place, a book, an idea -- and you fall in love. It's not the familiarity that's enticing and endearing in a person, place, book or idea, for there are many a familiar horrid *(synonym?)* places and ideas. It's love, an invisible bond.
 
-We fall in love with 
+We fall in love with actors, and 
