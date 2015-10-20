@@ -17,4 +17,6 @@ Love. Nobody knows how exactly it happens, but once in a while you meet a person
 
 It's love that pays the salaries of the big movie stars in the end.
 
-We fall in love with actors, and we follow their faces and personalities from one movie to another. We'd rather see those actors we love than total strangers. 
+We fall in love with actors, and we follow their faces and personalities from one movie to another. We'd rather see those actors we love than total strangers. An that's why film companies just have to pay the big stars.
+
+As for whether all this love and fame and money is too much -- perhaps it's just in our nature.
