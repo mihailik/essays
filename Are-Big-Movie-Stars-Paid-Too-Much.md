@@ -13,8 +13,8 @@ And isn't that the same reason good movies tend to come with sequels? Not becaus
 
 Having famous actor play in the next movie sells. Having famous actor play the same role sells even better. Just recall Star Wars episodes X to Y. Familiar faces, familiar themes, familiar environment -- all that creates warm pleasant feeling. Why?
 
-Love. Nobody knows how exactly it happens, but once in a whil you meet a person, a place, a book, an idea -- and you fall in love. It's not the familiarity that's enticing and endearing in a person, place, book or idea, for there are many a familiar horrid *(synonym?)* places and ideas. It's love, an invisible bond.
+Love. Nobody knows how exactly it happens, but once in a while you meet a person, a place, a book, an idea -- and you fall in love. It's not the familiarity that's enticing and endearing in a person, place, book or idea, for there are many a familiar horrid *(synonym?)* place. It's love, an invisible bond.
 
 It's love that pays the salaries of the big movie stars in the end.
 
-We fall in love with actors, and we follow their faces and personalities from one movie to another. 
+We fall in love with actors, and we follow their faces and personalities from one movie to another. We'd rather see those actors we love than total strangers. 
